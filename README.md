@@ -1,0 +1,1 @@
+Baked with a filling of fresh apples and warm spices, there is as much simple joy in preparing this classic apple pie as there is in eating it. Each bite makes your friends and family feel warm, cozy and like they’re wrapped in a hug. Whether you bake it for a holiday, a potluck or as a special weekend dessert, this timeless pie recipe is guaranteed to spark joy.
